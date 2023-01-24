@@ -1,2 +1,2 @@
 # project
-@vilkhovoj
+@vilkhovoj - мой телеграм 
